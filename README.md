@@ -1,3 +1,3 @@
 # Voice-Sticker
 
-redfoxv2XQpAAILI#eB7__UOVcEIytT8v8tvMfl0OkTeyrZHNdcBsf4qDWtU
+yRslEQ4D#5JlDl2b32Obwmr6A0XHQGIC_gZqpmUNBH2oTp0tpanQ
